@@ -1,0 +1,4 @@
+- 👋 oii, eu sou a @peridoritos
+- 👀 eu estou interessada em aprender
+- 🌱 estou aprendendo programação
+- 📫 email para contato isabely.correia@escola.pr.gov.br
